@@ -13,6 +13,7 @@
 Инструменты: Jira, DevTools, SQL, GitHub, Postman (изучаю).
 
 Контакты: yana.medici@gmail.com
++7 933 428 02 93 (+7 Russia)
 
 ## Содержание
 
